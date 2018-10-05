@@ -1,6 +1,5 @@
-# developer1801
-
-- 海贼王我当定了
-- 徐建程：我希望我们能学到有用的技能
-- 吴瑾有一个梦想：在西西伯利亚有一座庄园。
-- 刘笑锋：1801班人人都能放飞梦想。
+#developer1801
+ We're rewriting the history of human thought with what we're doing.
+ 我们正通过我们的所作所为，重写人类思想的历史
+ You don't just live in life.You change it,you shape it,you make your mark upon it.
+ 你不要只是活着。你改变命运，你塑造它，打上你的印记
