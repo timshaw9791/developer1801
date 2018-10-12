@@ -13,4 +13,5 @@ Good artists copy, great artists steal.
 idea it's never finished.
 谎言 神话里总有魔鬼
 perjury.Creation myths need adevil.
-
+i want beauty not incompetence.
+we have been chosento seize history.
