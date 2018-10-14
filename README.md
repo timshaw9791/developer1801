@@ -1,5 +1,5 @@
 # developer1801
 陈阳：胸无大志。
 硅谷传奇
-1：我们正在做的就好像是开门，如果你开错了，各种各样的坏事就会进来
-2：你知道黑手党怎么说吗？与你的朋友亲密，与你的朋友更亲密
+1：信息就是力量（Information is power）
+2：与其参加海军，不如成为海盗（Better to be a pirate than join the navy）
